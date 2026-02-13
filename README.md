@@ -1,1 +1,1 @@
-Mini proyecto de una FLor Amarilla para regalar
+Mini proyecto de una Flor Amarilla para regalar
